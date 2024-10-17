@@ -59,8 +59,8 @@ As **Mastashake**, he pioneers the genre **"Dark Shadow Tech Trap,"** merging te
 
 ## **Contact Information**
 
-- **Email:** [contact@jyroneparker.com](mailto:contact@jyroneparker.com)
-- **Phone:** (Your Phone Number)
+- **Email:** [inquiries@jyroneparker.com](mailto:inquiries@jyroneparker.com)
+- **Phone:** ‪(502) 791-6409‬
 - **Location:** Louisville, Kentucky, USA
 
 ---
